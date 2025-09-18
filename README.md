@@ -1,2 +1,2 @@
 # LugaresBonitos
-Lugares mais bonityos do mundo!!!
+Lugares mais bonitos do mundo!!!
